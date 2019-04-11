@@ -48,4 +48,4 @@ https://itunes.apple.com/cn/app/%E6%81%8B%E7%88%B1%E7%BA%AA%E5%BF%B5-%E5%9B%A0%E
 
 预览视频也很重要，有这个的App会让人更有下载的欲望。
 
-![5caea2eeb2b90.jpg](https://i.loli.net/2019/04/11/5caea2eeb2b90.jpg)
+![5caea343b8742.jpg](https://i.loli.net/2019/04/11/5caea343b8742.jpg)
