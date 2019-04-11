@@ -18,22 +18,20 @@
 
 http://zuimeia.com/app/6507/?utm_source=weixin&utm_campaign=referral&utm_medium=iosapp_share_tool&from=singlemessage&isappinstalled=0
 
-![5cae9d4753a31.png](https://i.loli.net/2019/04/11/5cae9d4753a31.png)
+![5caea398340ba.png](https://i.loli.net/2019/04/11/5caea398340ba.png)
 
-![5cae9d52bdb7b.png](https://i.loli.net/2019/04/11/5cae9d52bdb7b.png)
+![5caea3bc5c15e.png](https://i.loli.net/2019/04/11/5caea3bc5c15e.png)
 
 
 ## 在即刻上写的推荐帖，获得官方推荐：
 
 https://m.okjike.com/originalPosts/5c3c250e5cd3f80016227384?username=549AB127-6FEC-4C3D-A0F5-F768A7D2CDFA
 
-![5cae9e672d3f2.jpg](https://i.loli.net/2019/04/11/5cae9e672d3f2.jpg)
+![5caea3ddc33d0.jpg](https://i.loli.net/2019/04/11/5caea3ddc33d0.jpg)
 
-![5caea27cb5595.jpg](https://i.loli.net/2019/04/11/5caea27cb5595.jpg)
+![5caea3f70085b.jpg](https://i.loli.net/2019/04/11/5caea3f70085b.jpg)
 
-![5caea272b32ef.jpg](https://i.loli.net/2019/04/11/5caea272b32ef.jpg)
-
-![5caea286cc363.jpg](https://i.loli.net/2019/04/11/5caea286cc363.jpg)
+![5caea414eb2f0.jpg](https://i.loli.net/2019/04/11/5caea414eb2f0.jpg)
 
 
 ## AppStore商店运营
@@ -47,5 +45,7 @@ https://itunes.apple.com/cn/app/%E6%81%8B%E7%88%B1%E7%BA%AA%E5%BF%B5-%E5%9B%A0%E
 就像抖音在苹果应用商店有1820万个评价，会给一种很受欢迎的感觉，进而影响用户下载。
 
 预览视频也很重要，有这个的App会让人更有下载的欲望。
+
+
 
 ![5caea343b8742.jpg](https://i.loli.net/2019/04/11/5caea343b8742.jpg)
