@@ -14,7 +14,7 @@
 
 下面是自己的一些总结复盘：
 
-最美应用推荐:
+## 最美应用推荐:
 
 http://zuimeia.com/app/6507/?utm_source=weixin&utm_campaign=referral&utm_medium=iosapp_share_tool&from=singlemessage&isappinstalled=0
 
@@ -23,14 +23,20 @@ http://zuimeia.com/app/6507/?utm_source=weixin&utm_campaign=referral&utm_medium=
 ![5cae9d52bdb7b.png](https://i.loli.net/2019/04/11/5cae9d52bdb7b.png)
 
 
-在即刻上写的推荐帖，获得官方推荐：
+## 在即刻上写的推荐帖，获得官方推荐：
 
 https://m.okjike.com/originalPosts/5c3c250e5cd3f80016227384?username=549AB127-6FEC-4C3D-A0F5-F768A7D2CDFA
 
 ![5cae9e672d3f2.jpg](https://i.loli.net/2019/04/11/5cae9e672d3f2.jpg)
 
+![5caea27cb5595.jpg](https://i.loli.net/2019/04/11/5caea27cb5595.jpg)
 
-AppStore商店运营
+![5caea272b32ef.jpg](https://i.loli.net/2019/04/11/5caea272b32ef.jpg)
+
+![5caea286cc363.jpg](https://i.loli.net/2019/04/11/5caea286cc363.jpg)
+
+
+## AppStore商店运营
 
 https://itunes.apple.com/cn/app/%E6%81%8B%E7%88%B1%E7%BA%AA%E5%BF%B5-%E5%9B%A0%E4%B8%BA%E7%88%B1%E8%80%8C%E5%8F%98%E5%BE%97%E6%9B%B4%E5%A5%BD/id1444834995?mt=8
 
