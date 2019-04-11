@@ -27,8 +27,6 @@ http://zuimeia.com/app/6507/?utm_source=weixin&utm_campaign=referral&utm_medium=
 
 https://m.okjike.com/originalPosts/5c3c250e5cd3f80016227384?username=549AB127-6FEC-4C3D-A0F5-F768A7D2CDFA
 
-![5cae9e5fbdfa5.jpg](https://i.loli.net/2019/04/11/5cae9e5fbdfa5.jpg)
-
 ![5cae9e672d3f2.jpg](https://i.loli.net/2019/04/11/5cae9e672d3f2.jpg)
 
 
